@@ -6,8 +6,8 @@ Our team of highly skilled and experienced professionals is dedicated to user sa
 
 Specializing in:  
 ✅ Job search platforms  
-✅ Career development tools  
 ✅ Professional networking  
+✅ Career development tools  
 ✅ Recruitment and staffing services  
 ✅ Employee training and development  
 
